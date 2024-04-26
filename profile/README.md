@@ -1,5 +1,4 @@
 **Code Together, Succeed Together!**
-Meet Codex, Our Dugsiiye Mascot! 🤝
 
 You're now connected to the most vibrant Somali tech learning community right on your screen!
 
